@@ -2,12 +2,7 @@
 
 ![signature2](https://github.com/HolidayLaneConcierge/HolidayLaneConcierge/assets/153855802/3f599303-de79-4929-9dcc-c4024136f4a0)
 
-
 ![tom-signature](https://github.com/HolidayLaneConcierge/HolidayLaneConcierge/assets/153855802/ff907ade-a32e-4909-95d4-7d8c2fbae929)
-![Lisa Signature](https://github.com/HolidayLaneConcierge/HolidayLaneConcierge/assets/153855802/c19ad894-949f-4547-a7e4-05c3253a17b7)
-
-
-
 
 ![Jewel Signature](https://github.com/HolidayLaneConcierge/HolidayLaneConcierge/assets/153855802/f9273ab3-40bb-44e1-97ad-8f429a937944)
 
